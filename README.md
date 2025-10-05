@@ -19,7 +19,7 @@ My expertise includes:
 
 🌐 Connect With Me
 
-🎥 YouTube: https://www.youtube.com/@Insighterrony
+🎥 YouTube: https://www.youtube.com/@Insighteratiqul
 
 💼 LinkedIn: https://www.linkedin.com/in/insighteratiqul/
 
