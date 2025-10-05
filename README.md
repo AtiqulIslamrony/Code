@@ -19,9 +19,9 @@ My expertise includes:
 
 🌐 Connect With Me
 
-🎥 YouTube: @Insighterrony
+🎥 YouTube: https://www.youtube.com/@Insighterrony
 
-💼 LinkedIn: Atiqul Islam (Insighter)
+💼 LinkedIn: https://www.linkedin.com/in/insighteratiqul/
 
 💬 WhatsApp: +8801686648413
 
